@@ -1,3 +1,4 @@
+REMOTE
 Paroles de la chanson All We Got par Robin Schulz
 This is all we got
 Dreaming 'bout a revolution in our minds
